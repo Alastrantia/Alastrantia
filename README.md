@@ -11,3 +11,5 @@ byebye
 
 look at my stupud projects if you want cooki<br>
 (its giant cooki 10km bigg)
+
+#peace #humanrights #freeEveryone #nowar #remembereveryone
