@@ -15,5 +15,3 @@ look at my stupud projects if you want cooki<br>
 (its giant cooki 10km bigg)
 
 #peace #humanrights #freeEveryone #nowar #remembereveryone
-
-[[https://github.com/kittinan/spotify-github-profile][https://spotify-github-profile.kittinanx.com/api/view.svg?uid=31ihpgcs46ubctbbdyhvpfqv4jqy&cover_image=false&theme=default&show_offline=false&background_color=121212&interchange=true)]]
