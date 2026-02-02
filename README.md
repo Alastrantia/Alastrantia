@@ -1,6 +1,8 @@
 ## "meh alas, you person" - alastrantia
 
 i exist  
-some cringey shi used to be here
+i kinda like apis
+i kinda like servers
+i kinda like data collection
 
 #peace #humanrights #freeEveryone #nowar #remembereveryone
