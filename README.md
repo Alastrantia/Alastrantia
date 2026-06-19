@@ -5,4 +5,3 @@ i kinda like apis
 i kinda like servers
 i kinda like data collection
 
-#peace #humanrights #freeEveryone #nowar #remembereveryone
